@@ -1,0 +1,2 @@
+# geo-vip
+Gürcücə öyrən 
